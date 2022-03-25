@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Cmona1
+- 👀 I’m interested in Coding and love aviation 
+- 🌱 I’m currently learning C++ so pls help
+- 💞️ I’m looking to collaborate on Flightgear planes
+- 📫 How to reach me 
+- discord tag _Cmona_#8542
+--->
